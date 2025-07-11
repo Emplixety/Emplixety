@@ -6,4 +6,4 @@ My name is Emplixety, here you will learn all about me! My age is 19, I am a for
 ## My Work
 
 **Community Manager** for [The JB Association](https://github.com/The-JB-Association)
-**Executive** at [Biography.gg](https://biography.gg/)
+- **Executive** at [Biography.gg](https://biography.gg/)
