@@ -7,3 +7,13 @@ My name is Emplixety, here you will learn all about me! My age is 20, I am a for
 
 **Community Manager** for [The JB Association](https://github.com/The-JB-Association)
 - **Executive** at [Biography.gg](https://biography.gg/)
+
+---
+
+## My Favorite Quotes!
+
+"This is motivation
+For every single chance you ain’t taken
+any rule that’s in your way you better break it
+Shut up, embrace it
+The pain is a pre-requisite without it how the fuck you think you Ever gon’ make it"
