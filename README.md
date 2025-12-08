@@ -34,3 +34,5 @@ I took the hate they all threw sat down and I ate" - Dax
 "Rejection makes a man stronger. I believe you can't call yourself a real man unless you can laugh off all the bad stuff that's happend to you." - Jiraiya
 
 "If you have everything, you have nothing but if you have nothing, you have everything so spend your time wisely!" - Me
+
+"Acquired strength only comes from the accumulation of results. Tasting defeat and savoring victory, these are the things that lead us to grow. The most important thing now is for those results to continue to exist!" - Aoi Todo
