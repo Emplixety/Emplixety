@@ -36,3 +36,7 @@ I took the hate they all threw sat down and I ate" - Dax
 "If you have everything, you have nothing but if you have nothing, you have everything so spend your time wisely!" - Me
 
 "Acquired strength only comes from the accumulation of results. Tasting defeat and savoring victory, these are the things that lead us to grow. The most important thing now is for those results to continue to exist!" - Aoi Todo
+
+---
+
+[![Emplixety on Discord](https://lanyard.cnrad.dev/api/959591187151466537?bg=23F3A2&idleMessage=I'm%20not%20here&theme=dark&showDisplayName=true)](https://discord.com/users/959591187151466537)
